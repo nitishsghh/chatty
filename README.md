@@ -16,4 +16,5 @@
 ## Massage with Emogi Overview Also mentioned Logout ..
 ![send message with emogi](https://github.com/nitishsghh/Chatty/assets/120895433/f63127df-afaa-41dd-b280-482a5977849c)
 
-
+## Give Star This Project ..
+## THANK YOU 🙌
